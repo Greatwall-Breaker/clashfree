@@ -3,7 +3,7 @@
 
 ## clash使用教程：
 
-<a href="https://clashforwindows100.com/" target="_blank">clash科学上网：clash for windows 详细教程</a>
+<a href="https://qimiao.xyz/archives/1718598077231" target="_blank">clash科学上网：clash for windows 详细教程</a>
 
 ## clash订阅链接：
 
@@ -11,19 +11,20 @@
 
 ## 更多clash节点订阅 ：
 
-高性价比机场推荐：<a href="https://kfyun.uk/?code=srOLpruw" target="_blank">快帆云</a>
+高性价比机场推荐：<a href="https://m78.at/#/register?code=LYSSrx1h" target="_blank">M78星云</a>
 
-### [快帆云]() —  最佳机场之选，可免账号观看奈飞、迪士尼
+### [M78星云]() —  大陆最佳机场之选，送Emby会员，免费观看爱优腾电影电视剧，还有Netflix，Disney资源，全部免费看！
 
-- 全球众多节点，8K不卡顿。
-- 解锁奈飞、迪士尼、TikTok 、ChatGPT。**（全网独家同时支持免费看netflix、disney+）**
-- 流量不虚标，所有节点都是1倍率。
-- 不限登陆设备数，不设置每日封顶流量。
+- 月付7.8月起，年付新用户优惠仅需**5元/月**
+- 全球20+地区众多节点，8K不卡顿。
+- 解锁奈飞、迪士尼、TikTok 、ChatGPT。
+- 流量不虚标，最低倍率0.75倍，大部分均为1倍。
+- 个人使用不限登陆设备数。
 - 按流量付费、包月等多种套餐可选，价格便宜。
 
-网站地址：【[快帆云]()】  **九折优惠券：SXFOsZ31**
+网站地址：【[点击查看价格](https://m78.at/#/register?code=LYSSrx1h)】  **新用户7.8折优惠券：m78-22off**
 
-更多推荐：<a href="https://clashbk.github.io/" target="_blank">免费节点</a>   <a href="https://clashgithub.com" target="_blank">免费clash节点</a>   <a href="https://github.com/aiboboxx/v2rayfree" target="_blank">免费v2ray节点</a>   [性价比机场](https://xn--6nq44r2uh9rhj7f.org/)
+更多推荐：<a href="https://clashbk.github.io/" target="_blank">免费节点</a>   <a href="https://clashgithub.com" target="_blank">免费clash节点</a>   <a href="https://github.com/aiboboxx/v2rayfree" target="_blank">免费v2ray节点</a>   
 
 
 ## 免费clash节点分享
