@@ -24,7 +24,7 @@
 
 网站地址：【[点击查看价格](https://m78.at/#/register?code=LYSSrx1h)】  **新用户7.8折优惠券：m78-22off**
 
-更多推荐：<a href="https://clashbk.github.io/" target="_blank">免费节点</a>   <a href="https://clashgithub.com" target="_blank">免费clash节点</a>   <a href="https://github.com/aiboboxx/v2rayfree" target="_blank">免费v2ray节点</a>   
+更多推荐：<a href="https://qimiao.xyz/archives/1708615301064" target="_blank">Emby机场服</a>   
 
 
 ## 免费clash节点分享
